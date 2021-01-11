@@ -1,4 +1,4 @@
-# Recipie Book
+# Recipe Book
 This is a collection of recipes that I've collected over the years. Most I have 
 made myself, some looked interesting but I haven't gotten around to.
 
