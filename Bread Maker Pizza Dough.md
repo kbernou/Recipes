@@ -2,7 +2,7 @@
 Thanks Cole.
 
 ## Ingredients
-* Water 1/3 cup + 2 tbsp
+* Water 3/4 cup + 2 tbsp
 * Salt 3/4 tsp
 * Olive Oil 2 tbsp
 * All-Purpose Flour 2.5 cups
