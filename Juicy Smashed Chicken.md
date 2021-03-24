@@ -3,7 +3,7 @@
 * 2 chicken breasts
 * 1 tsp garlic powder
 * 1 tsp onion powder
-* 1 tsp salt (or less, to taste)
+* 1/2 tsp salt
 * 1/2 tsp paprika
 * 1/2 tsp pepper
 * oil
