@@ -9,13 +9,11 @@
 * (optional, but tasty) 1 tbsp parsley flakes
 
 ## Instructions
-Assembly:
+### Assembly
 1. Stir together flour, baking powder, sugar, salt, and parsley in medium size bowl. 
 2. Cut in butter until crumbly. 
 3. Stir in milk to make a soft dough.
 
-Cooking:
+### Cooking
 1. Drop by spoonfuls into boiling stew. 
 2. Cover and simmer 15 minutes without lifting lid. 
-
-Serve (yum yum)
