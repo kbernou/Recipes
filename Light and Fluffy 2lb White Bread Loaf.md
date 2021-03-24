@@ -11,6 +11,8 @@ Holy cow is this shit fluffy and soft.
 
 ## Instructions
 1. Yeet the shit into the bread pan in the order listed above
-2. Select "Basic" setting
-3. Select "Light" crust setting
-4. Start that bitch and let 'er chooch
+3. Select the "2 lb" setting
+4. Select "Basic" setting
+5. Select "Light" crust setting
+6. Start that shit and let 'er chooch (or delay until you want it of course)
+7. Let sit on a wire rack outside of the bread pan for 60 mins (or 20 if you must have that warm, fresh, hot bread. And who could blame you?)
