@@ -1,6 +1,7 @@
   # Smashed Potatoes
   ## Ingredients
   * Potatoes (preferably those little ones, unless you want to cut big ones and end up with mostly mashed potatoes, or a giant smashed potato)
+  * ~1 tbsp oil
   * 1 tsp onion powder
   * 1 tsp paprika
   * 1 tsp oregano
