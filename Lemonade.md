@@ -26,4 +26,4 @@ This doesn't involve making simply syrup, and uses less lemon juice. Tends to be
 ### Instructions
 1. Mix sugar and water together, until as disolved as you can get it.
 2. Realize you don't have as much lemon juice as you thought, and add it to the sugar water.
-3. Mix, add ice cubes for a e s t h e t i c.
+3. Mix, add ice cubes for a e s t h e t i c s.
