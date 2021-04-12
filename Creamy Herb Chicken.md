@@ -1,5 +1,5 @@
 # Creamy Herb Chicken
-[Source](https://cafedelites.com/quick-easy-creamy-herb-chicken/).
+[Source](https://cafedelites.com/quick-easy-creamy-herb-chicken/)
 
 ## Ingredients
 ### For The Chicken
