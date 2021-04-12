@@ -15,4 +15,7 @@ Holy cow is this shit fluffy and soft.
 4. Select "Basic" setting
 5. Select "Light" crust setting
 6. Start that shit and let 'er chooch (or delay until you want it of course)
-7. Let sit on a wire rack outside of the bread pan for 60 mins (or 20 if you must have that warm, fresh, hot bread. And who could blame you?)
+7. Let sit on a wire rack outside of the bread pan for 60 mins for optimal long-term fluffiness (or 20 if you must have that warm, fresh, hot bread immediately. And who could blame you?)
+
+## Notes
+Putting almost 3 tsp of yeast and 3.5 cups of flour makes an ultra fluffy loaf.
