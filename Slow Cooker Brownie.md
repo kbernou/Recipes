@@ -4,7 +4,7 @@
 # Ingredients
 ## Brownie
 * 1 cup (2 sticks) melted butter
-* 1 1/4 c granulated sugar
+* 1 1/4 cup granulated sugar
 * 1/4 cup packed brown sugar
 * 2/3 cup unsweetened cocoa powder
 * 1/3 cup all-purpose flour
