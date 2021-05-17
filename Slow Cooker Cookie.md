@@ -5,8 +5,8 @@ Reference: https://www.reddit.com/r/food/comments/fy12c7/homemade_slow_cooker_gi
 * 100g of butter
 * 100g of caster/powdered sugar
 * 75g of brown sugar
-* 200gr of flour
-* 250gr of chocolate chips
+* 200g of flour
+* 250g of chocolate chips
 * 1 egg
 * bit of salt
 * 1tbsp of vanilla extract
