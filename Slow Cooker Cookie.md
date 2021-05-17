@@ -21,7 +21,7 @@ Batter:
 Cooking:
 1. Line slow cooker with parchment paper. 
 2. Pour batter into slow cooker. 
-3. Cook on high for ~2.5 hours
+3. Cook on low for 3.5 hours, then on high for 30 mins (With a bigger, more normal slow cooker: Cook on high for ~2.5 hours)
 4. Should be about done, poke it with a toothpick. If it makes you happy, eat it!
 
 Does end up with a gooey centre for me, but that's what I like. In larger, more normal slow cookers then it might be more cooked through.
