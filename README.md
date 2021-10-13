@@ -8,7 +8,4 @@ family, and across the internet. I apologize for not linking to original sources
 were good for myself should the original sources be lost. I don't suppose many 
 family cook books have their original sources listed either!
 
-Given the bachelor life I lead, many of these recipes lean on the inexpensive 
-side.
-
 Could stand to organize these into folders.
