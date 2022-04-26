@@ -1,5 +1,5 @@
 # Lemon, Garlic, and Herb Grilled Salmon
-Tasty.
+Tasty. Found originally on [Cooking Classy](https://www.cookingclassy.com/lemon-garlic-herb-grilled-salmon/).
 
 ## Ingredients
 * 4 (6 - 7 oz) skinless salmon fillets
