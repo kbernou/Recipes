@@ -9,6 +9,7 @@ Dough made in the bread maker. Original source [here](https://pudgefactor.com/ho
 * 3/4 tsp salt
 * 2 1/2 cups all-purpose flour
 * 1 1/8 tsp bread machine yeast
+
 Optional
 * Egg whites for brushing
 
