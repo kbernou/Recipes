@@ -15,7 +15,7 @@ Optional
 
 ## Instructions
 1. Add all ingredients to the bread maker pan in the order above
-2. Set machine to the dough cetting, and start
+2. Set machine to the dough setting, and start
 3. When machine has finished, transfer dough to floured surface and into 6 (~97g)or 8 (~71g) equal pieces
 4. Form each piece into a ball and place on parchment-lined baking sheet
 5. Flatten each piece until it is about 1/2 inches thick.
